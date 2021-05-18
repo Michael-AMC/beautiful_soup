@@ -3,3 +3,6 @@
 - spare ribs
 - spaghetti a la manetti
 - SPECIALITY
+- spaghetti a la manetti (Hoeksteen Wageningen)
+- chili con carne
+
