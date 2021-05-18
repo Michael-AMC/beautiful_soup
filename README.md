@@ -2,4 +2,4 @@
 - soup
 - spare ribs
 - spaghetti a la manetti
-- 
+- SPECIALITY
